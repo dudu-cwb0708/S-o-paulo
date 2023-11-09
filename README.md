@@ -1,1 +1,1 @@
-# S-o-paulo
+# São-paulo
